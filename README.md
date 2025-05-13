@@ -1,5 +1,5 @@
 # reupload-SAI2
-### DEADLINE: MAY 15 THURSDAY
+### DEADLINE: MAY 15 THURSDAY 1pm
 
 Nagka-virus ang drive natin, kaya nawala yung mga files na na-upload natin doon. Ngayon, pinapa-upload ulit ni Ma'am ang mga files sa bagong Google Drive na ito.
 
